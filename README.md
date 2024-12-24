@@ -23,3 +23,4 @@
 ・グッズ収集(アクリルスタンド)
 
 ###  MTM班とは
+<img src="https://github.com/Seig4n/PRO/blob/newFolder/photo/MTM%E5%BC%95%E7%B6%99%E3%81%8ERTA.png"  width="4000">
