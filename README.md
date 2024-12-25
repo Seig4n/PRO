@@ -46,4 +46,4 @@ MTM班のMTMとは…
 
 ウマ娘：ミホノブルボン・メジロドーベル・トランセンド
 
-YouTuber:MKR
+YouTuber : MKR
